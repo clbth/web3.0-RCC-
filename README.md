@@ -54,7 +54,7 @@ RCC的真正老板是一个擦边主播，带领这一群伪装成远程程序�
 
 ![image](https://github.com/user-attachments/assets/a2cc15b3-a60d-4aa8-94c3-95ec62914031)
 
-![image](https://github.com/user-attachments/assets/36f52435-21ac-4487-93d4-ca7f7942f985)
+
 
 ### 擦边方式直播博眼球骗取粉丝关注
 （擦边直播截图）
