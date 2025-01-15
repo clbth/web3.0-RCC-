@@ -68,9 +68,8 @@ RCC的真正老板是一个擦边主播，带领这一群伪装成远程程序�
 （程序员老杨截图）
 
 
-![image](https://github.com/user-attachments/assets/d748a3f9-d4e4-4f90-ad27-0c50d5b18cb9)
+![image](https://github.com/user-attachments/assets/67b20077-5119-4409-96d1-d56d652605f4)
 
-![image](https://github.com/user-attachments/assets/d7e1538c-20a7-4f12-bfc1-5e18610081d3)
 
 ### 总算知道他为什么叫歪嘴，造谣真是不白给
 
