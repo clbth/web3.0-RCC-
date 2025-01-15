@@ -31,7 +31,7 @@
 ![image](https://github.com/user-attachments/assets/e942b531-ba41-4297-8b58-8abba30d898a)
 
 
-### 💩💩💩学员描述他们课程质量差💩💩💩💩💩💩💩💩💩
+### 💩💩💩学员描述他们课程质量差💩💩💩
 
 
 ![image](https://github.com/user-attachments/assets/5ecb901c-5a72-4531-804f-906dadd2cf87)
