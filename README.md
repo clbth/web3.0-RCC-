@@ -98,7 +98,7 @@ RCC的真正老板是一个擦边主播，带领这一群伪装成远程程序�
 ![image](https://github.com/user-attachments/assets/4e420df4-6830-499b-9d6d-4bc0b688169b)
 ![image](https://github.com/user-attachments/assets/cdf16e86-3a81-40e7-b0cb-6e06ba614c09)
 ![image](https://github.com/user-attachments/assets/b2ff08e5-f8bf-4cb0-9589-f3dd3888fc25)
-![image](https://github.com/user-attachments/assets/77954dd6-dc33-4a01-9644-e3e16d31e63c)
+![image](https://github.com/user-attachments/assets/f2d90a6c-87cb-42b8-ac56-08e63389c395)
 ![image](https://github.com/user-attachments/assets/f694b618-b9c9-4259-a79b-e27db7ee20db)
 
 
