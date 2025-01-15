@@ -40,7 +40,6 @@
 
 ![image](https://github.com/user-attachments/assets/5e2a26ee-ff05-4470-bffe-c104eb8b6bbd)
 ![image](https://github.com/user-attachments/assets/6b87babb-599c-4257-abb5-49f7b8a3970c)
-![image](https://github.com/user-attachments/assets/075f4ba5-3161-45fe-b114-b6d17bd43588)
 
 ![image](https://github.com/user-attachments/assets/a728dcd5-72f8-4bc2-80c7-bd399260dbc7)
 
