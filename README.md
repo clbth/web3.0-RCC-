@@ -104,12 +104,12 @@ RCC的真正老板是一个擦边主播，带领这一群伪装成远程程序�
 （相关图片）
 
 
+![image](https://github.com/user-attachments/assets/f2d90a6c-87cb-42b8-ac56-08e63389c395)
+![image](https://github.com/user-attachments/assets/f694b618-b9c9-4259-a79b-e27db7ee20db)
 ![image](https://github.com/user-attachments/assets/26dc6d2e-7b39-49d5-82e6-4daed2152095)
 ![image](https://github.com/user-attachments/assets/104a21d9-60e9-4766-9053-c6596f0135ef)
 ![image](https://github.com/user-attachments/assets/cdf16e86-3a81-40e7-b0cb-6e06ba614c09)
 ![image](https://github.com/user-attachments/assets/b2ff08e5-f8bf-4cb0-9589-f3dd3888fc25)
-![image](https://github.com/user-attachments/assets/f2d90a6c-87cb-42b8-ac56-08e63389c395)
-![image](https://github.com/user-attachments/assets/f694b618-b9c9-4259-a79b-e27db7ee20db)
 ![image](https://github.com/user-attachments/assets/4e420df4-6830-499b-9d6d-4bc0b688169b)
 
 ### 🔥🔥🔥所以他根本不敢露脸直播 怕别人拿到证据起诉他 昧良心的事情做多了 心虚是很正常的。
