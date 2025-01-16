@@ -8,6 +8,15 @@
 ![image](https://github.com/user-attachments/assets/2bc5fe0f-c024-4879-8aa7-90554f53514e)
 
 
+ ### 9月份暴雷以后 他们为了继续行骗 改头换面成杭州拓链文化传媒有限公司 公司法人就是以前就是擦边主播和小k爱叨叨是情侣关系 以色诱程序员的方式再次行骗
+（铁小锤和拓链的相关链图片）
+
+
+![image](https://github.com/user-attachments/assets/5e2a26ee-ff05-4470-bffe-c104eb8b6bbd)
+![image](https://github.com/user-attachments/assets/6b87babb-599c-4257-abb5-49f7b8a3970c)
+
+![image](https://github.com/user-attachments/assets/a728dcd5-72f8-4bc2-80c7-bd399260dbc7)
+
 ### 💩💩💩学员描述他们课程质量差💩💩💩
 
 
@@ -26,16 +35,6 @@
 ![未命名](https://github.com/user-attachments/assets/4877d999-13ca-4af4-84e7-ba428cf2cacf)
 
 
-
-
- ### 9月份暴雷以后 他们为了继续行骗 改头换面成杭州拓链文化传媒有限公司 公司法人就是以前就是擦边主播和小k爱叨叨是情侣关系 以色诱程序员的方式再次行骗
-（铁小锤和拓链的相关链图片）
-
-
-![image](https://github.com/user-attachments/assets/5e2a26ee-ff05-4470-bffe-c104eb8b6bbd)
-![image](https://github.com/user-attachments/assets/6b87babb-599c-4257-abb5-49f7b8a3970c)
-
-![image](https://github.com/user-attachments/assets/a728dcd5-72f8-4bc2-80c7-bd399260dbc7)
 
 
 
